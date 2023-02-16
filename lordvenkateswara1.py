@@ -1,5 +1,6 @@
 om namovenkateshaya
-Govinda 
-Govinda
+Padmavathi
+Alivelumanga
+Godhadevi
 Tiruamal Tirupati Deva  
 
